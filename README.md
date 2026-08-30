@@ -11,6 +11,8 @@
   
 #
 
+<img src="https://readme-typing-svg.demolab.com/?lines=Hello+There+Critterlings!&font=FiraCode&center=true&width=600&height=80&size=40&color=C55730" alt="Large Typing SVG"> 
+
 <img width="400" height="400" alt="tumblr_d5c955d825651dcbab90899ef30be419_8d523a43_400" src="https://github.com/user-attachments/assets/5403d777-5c59-4499-993f-f2005a6419f0" />
 <p align="center">
 
