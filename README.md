@@ -1,13 +1,14 @@
 <div align="center">
   
-# Hi there! 🦴🦴
-# 🦴🦴 Welcome to my Read.me!
+<img src="https://readme-typing-svg.demolab.com/?lines=S+M+I+L+E;EVERY+DAY+!&font=FiraCode&center=true&width=600&height=80&size=40&color=C55730" alt="Large Typing SVG"> 
+
+# ${\textsf{\color{#d38d39}Hi there! 🦴🦴}}$
+# ${\textsf{\color{#e3c44d}🦴🦴 Welcome to my Read.me!}}$
 
 <img width="324" height="353" alt="tumblr_6fc9c6bc580e34bca225d5ac191b1b2f_cebc8ef5_400" src="https://github.com/user-attachments/assets/e0ca0385-9ae4-416e-9c06-52e9e0f9fd64" />
 
-
-
-
+<div align="center">
+  
 #
 
 <img width="400" height="400" alt="tumblr_d5c955d825651dcbab90899ef30be419_8d523a43_400" src="https://github.com/user-attachments/assets/5403d777-5c59-4499-993f-f2005a6419f0" />
@@ -30,4 +31,6 @@ Hello!! I'm Dogday, your personal cheerful dog! My pronouns shall be he/him! I'm
 ${\textsf{\color{#e3c44d}𝐂𝐚𝐭𝐧𝐚𝐩 𝐢𝐬 𝐦𝐲 𝐛𝐞𝐬𝐭 𝐛𝐮𝐝𝐝𝐲 𝐟𝐫𝐢𝐞𝐧𝐝!}}$
 
 ${\textsf{\color{#d38d39}𝐈 𝐭𝐚𝐤𝐞 𝐜𝐚𝐫𝐞 𝐨𝐟 𝐦𝐲 𝐥𝐨𝐯𝐞𝐥𝐲 𝐜𝐫𝐞𝐰𝐬!}}$
+
+${\textsf{\color{#c55730}𝐈 𝐰𝐢𝐥𝐥 𝐚𝐥𝐰𝐚𝐲𝐬 𝐩𝐫𝐨𝐭𝐞𝐜𝐭 𝐦𝐲 𝐥𝐨𝐯𝐞𝐥𝐲 𝐜𝐫𝐞𝐰!}}$
 
