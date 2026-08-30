@@ -3,13 +3,16 @@
 <img src="https://readme-typing-svg.demolab.com/?lines=S+M+I+L+E;EVERY+DAY+!&font=FiraCode&center=true&width=600&height=80&size=40&color=C55730" alt="Large Typing SVG"> 
 
 # ${\textsf{\color{#d38d39}⋆˚౨ৎ ⋆.˚Hi there!⋆˚౨ৎ ⋆.˚}}$
-# ${\textsf{\color{#e3c44d}⋆˚౨ৎ ⋆.˚Welcome to my Read.me!⋆˚౨ৎ ⋆.˚}}$
 
 <img width="324" height="353" alt="tumblr_6fc9c6bc580e34bca225d5ac191b1b2f_cebc8ef5_400" src="https://github.com/user-attachments/assets/e0ca0385-9ae4-416e-9c06-52e9e0f9fd64" />
 
+# ${\textsf{\color{#e3c44d}⋆˚౨ৎ ⋆.˚Welcome to my Read.me!⋆˚౨ৎ ⋆.˚}}$
+
+
+
 <div align="center">
   
-#
+
 
 <img src="https://readme-typing-svg.demolab.com/?lines=Hello+There+Critterlings!&font=FiraCode&center=true&width=600&height=80&size=40&color=C55730" alt="Large Typing SVG"> 
 
