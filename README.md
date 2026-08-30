@@ -57,5 +57,7 @@ ${\textsf{\color{#c55730}*ੈ✩‧₊˚𝐋𝐢𝐤𝐞𝐬 𝐝𝐨𝐠𝐬, �
 ${\textsf{\color{#d38d39}𝐍𝐞𝐰 𝐍𝐢𝐜𝐤𝐧𝐚𝐦𝐞 𝐟𝐨𝐫 𝐭𝐡𝐢𝐬 𝐚𝐧𝐢𝐦𝐚𝐥..}}$ [MR. BEAR KING!](https://github.com/ThatRoyalBeast)
 ${\textsf{\color{#d38d39}𝐈 𝐫𝐞𝐚𝐥𝐥𝐲 𝐥𝐨𝐯𝐞 𝐡𝐢𝐬 𝐁𝐞𝐚𝐬𝐭 𝐬𝐤𝐢𝐧𝐬! }}$
 
-<img width="316" height="250" alt="Image" src="https://github.com/user-attachments/assets/80941366-fe42-494d-af84-d99def5b0734" />
+<div align="center">
+
+<img width="188" height="192" alt="pony-town--boop-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/73d86d9f-263d-49ac-babe-f8fb0c6a9fdc" /> <img width="316" height="250" alt="Image" src="https://github.com/user-attachments/assets/80941366-fe42-494d-af84-d99def5b0734" />
 
