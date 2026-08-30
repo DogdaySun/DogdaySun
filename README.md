@@ -30,7 +30,7 @@ ${\textsf{\color{#e3c44d}*ੈ✩‧₊˚𝐈𝐟 𝐬𝐨𝐦𝐞𝐨𝐧𝐞 �
 <div align="center">
 
 ${\textsf{\color{#c55730}Hello!! I'm Dogday,}}$ ${\textsf{\color{#d38d39}your personal cheerful dog!}}$  ${\textsf{\color{#e3c44d}My pronouns should be he/him!}}$ ${\textsf{\color{#e3c44d}I'm from Popy Playtime! Plus, I'm a canon character!}}$ ${\textsf{\color{#d38d39}DNI PROSHIPPER AND DARKSHIPPER!!}}$ ${\textsf{\color{#c55730}I'm very uncomfortable with those who ship me..}}$
-${\textsf{\color{#c55730}And loves to make new friends!}}$ ${\textsf{\color{#c55730}Please whisper to me if you want to interact with me!}}$ 
+${\textsf{\color{#d38d39}And loves to make new friends!}}$ ${\textsf{\color{#e3c44d}Please whisper to me if you want to interact with me!}}$ 
 
 <img width="400" height="365" alt="tumblr_3fa4b799eba40d9523840672b3765d0b_c8d59f0b_400" src="https://github.com/user-attachments/assets/113f5a0c-5a8b-4a9b-9d7f-d69d531c6bf1" />
 
@@ -57,7 +57,7 @@ ${\textsf{\color{#c55730}*ੈ✩‧₊˚𝐋𝐢𝐤𝐞𝐬 𝐝𝐨𝐠𝐬, �
 
 # ${\textsf{\color{#c55730}𝐓𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐟𝐨𝐫 𝐫𝐞𝐚𝐝𝐢𝐧𝐠 𝐦𝐲 𝐥𝐨𝐯𝐢𝐧𝐠 𝐑𝐄𝐀𝐃.𝐌𝐄!!}}$
 
-${\textsf{\color{#d38d39}𝐍𝐞𝐰 𝐍𝐢𝐜𝐤𝐧𝐚𝐦𝐞 𝐟𝐨𝐫 𝐭𝐡𝐢𝐬 𝐚𝐧𝐢𝐦𝐚𝐥..}}$ [MR. BEAR KING!](https://github.com/ThatRoyalBeast)
+${\textsf{\color{#d38d39}𝐍𝐞𝐰 𝐍𝐢𝐜𝐤𝐧𝐚𝐦𝐞 𝐟𝐨𝐫 𝐭𝐡𝐢𝐬 𝐜𝐫𝐞𝐚𝐭𝐮𝐫𝐞..}}$ [Mr. Bear King!](https://github.com/ThatRoyalBeast)
 ${\textsf{\color{#d38d39}𝐈 𝐫𝐞𝐚𝐥𝐥𝐲 𝐥𝐨𝐯𝐞 𝐡𝐢𝐬 𝐁𝐞𝐚𝐬𝐭 𝐬𝐤𝐢𝐧𝐬! }}$
 
 <div align="center">
