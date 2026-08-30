@@ -58,11 +58,3 @@ ${\textsf{\color{#e3c44d}*ੈ✩‧₊˚𝐍𝐨𝐭 𝐯𝐞𝐫𝐲 𝐢𝐧�
 #
 
 # ${\textsf{\color{#c55730}𝐓𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐟𝐨𝐫 𝐫𝐞𝐚𝐝𝐢𝐧𝐠 𝐦𝐲 𝐥𝐨𝐯𝐢𝐧𝐠 𝐑𝐄𝐀𝐃.𝐌𝐄!!}}$
-
-${\textsf{\color{#d38d39}𝐍𝐞𝐰 𝐍𝐢𝐜𝐤𝐧𝐚𝐦𝐞 𝐟𝐨𝐫 𝐭𝐡𝐢𝐬 𝐜𝐫𝐞𝐚𝐭𝐮𝐫𝐞..}}$ [Mr. Bear King!](https://github.com/ThatRoyalBeast)
-${\textsf{\color{#d38d39}𝐈 𝐫𝐞𝐚𝐥𝐥𝐲 𝐥𝐨𝐯𝐞 𝐡𝐢𝐬 𝐁𝐞𝐚𝐬𝐭 𝐬𝐤𝐢𝐧𝐬! }}$
-
-<div align="center">
-
-<img width="188" height="192" alt="pony-town--boop-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/73d86d9f-263d-49ac-babe-f8fb0c6a9fdc" /> <img width="316" height="250" alt="Image" src="https://github.com/user-attachments/assets/80941366-fe42-494d-af84-d99def5b0734" />
-
