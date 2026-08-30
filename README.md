@@ -45,11 +45,17 @@ ${\textsf{\color{#d38d39}*ੈ✩‧₊˚𝐈 𝐥𝐢𝐤𝐞 𝐭𝐨 𝐜𝐡�
 
 ${\textsf{\color{#e3c44d}*ੈ✩‧₊˚𝐈 𝐥𝐢𝐤𝐞 𝐭𝐨 𝐬𝐤𝐞𝐭𝐜𝐡/𝐝𝐫𝐚𝐰.*ੈ✩‧₊˚}}$
 
-${\textsf{\color{#e3c44d}*ੈ✩‧₊˚𝐑𝐞𝐬𝐭 𝐢𝐧 𝐬𝐥𝐞𝐞𝐩.*ੈ✩‧₊˚}}$
+${\textsf{\color{#d38d39}*ੈ✩‧₊˚𝐑𝐞𝐬𝐭 𝐢𝐧 𝐬𝐥𝐞𝐞𝐩.*ੈ✩‧₊˚}}$
+
+${\textsf{\color{#c55730}*ੈ✩‧₊˚𝐋𝐢𝐤𝐞𝐬 𝐝𝐨𝐠𝐬, 𝐝𝐫𝐚𝐠𝐨𝐧𝐬, 𝐚𝐧𝐝 𝐬𝐧𝐚𝐤𝐞𝐬!*ੈ✩‧₊˚}}$
+
 
 #
 
 # ${\textsf{\color{#c55730}𝐓𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐟𝐨𝐫 𝐫𝐞𝐚𝐝𝐢𝐧𝐠 𝐦𝐲 𝐥𝐨𝐯𝐢𝐧𝐠 𝐑𝐄𝐀𝐃.𝐌𝐄!!}}$
 
+${\textsf{\color{#d38d39}𝐍𝐞𝐰 𝐍𝐢𝐜𝐤𝐧𝐚𝐦𝐞 𝐟𝐨𝐫 𝐭𝐡𝐢𝐬 𝐚𝐧𝐢𝐦𝐚𝐥..}}$ [MR. BEAR KING!](https://github.com/ThatRoyalBeast)
+${\textsf{\color{#d38d39}𝐈 𝐫𝐞𝐚𝐥𝐥𝐲 𝐥𝐨𝐯𝐞 𝐡𝐢𝐬 𝐁𝐞𝐚𝐬𝐭 𝐬𝐤𝐢𝐧𝐬! }}$
 
+<img width="316" height="250" alt="Image" src="https://github.com/user-attachments/assets/80941366-fe42-494d-af84-d99def5b0734" />
 
