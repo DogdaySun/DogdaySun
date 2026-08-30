@@ -1,5 +1,4 @@
-<div align="center">
-  
+<div align="center"> 
 <img src="https://readme-typing-svg.demolab.com/?lines=S+M+I+L+E;EVERY+DAY+!&font=FiraCode&center=true&width=600&height=80&size=40&color=C55730" alt="Large Typing SVG"> 
 
 # ${\textsf{\color{#d38d39}⋆˚౨ৎ ⋆.˚Hi there!⋆˚౨ৎ ⋆.˚}}$
