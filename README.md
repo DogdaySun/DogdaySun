@@ -7,6 +7,7 @@
 
 # ${\textsf{\color{#e3c44d}⋆˚౨ৎ ⋆.˚Welcome to my Read.me!⋆˚౨ৎ ⋆.˚}}$
 
+<img width="400" height="222" alt="tumblr_4cfd8979dcb6c9c625b06fb0a33338c0_40083eab_400" src="https://github.com/user-attachments/assets/b77dc31d-cf71-4df0-83bf-933793a96006" />
 
 
 <div align="center">
